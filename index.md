@@ -9,3 +9,8 @@ Der Seitentitel ist ein Zitat, mit diesen Worten begann jede Radiosendung.
 * vorzugsweise in der Nacht unterwegs
 * jagt Verbrecher, treibt diese in den Wahnsinn
 * nutzt Netzwerk von Agenten – in der Regel Menschen, die ihm einen Gefallen schulden oder ihm ihr Leben verdanken
+
+Zitat:
+> Who knows what evil lurks in the hearts of men?
+> Wer weiß welches Böse in den Herzen der Menschen lauert? Der Schatten weiß es!
+
