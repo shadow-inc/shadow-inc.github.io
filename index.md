@@ -14,3 +14,5 @@ Zitat:
 > Who knows what evil lurks in the hearts of men?
 > Wer weiß welches Böse in den Herzen der Menschen lauert? Der Schatten weiß es!
 
+<img src="https://66.media.tumblr.com/097dfea42234496139a4c758435fb598/tumblr_mrunc3fOwK1rcp7bmo1_640.jpg"/>
+
